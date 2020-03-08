@@ -1,0 +1,1 @@
+# https://werton-wad.github.io/singolo/
